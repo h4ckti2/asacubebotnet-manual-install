@@ -1,0 +1,1 @@
+# asacubebotnet-manual-install
